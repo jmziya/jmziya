@@ -7,5 +7,5 @@
 - 💬 Ask me about the basics of tech and the best practises of computing, computer networking, and computer programming
 - 📫 How to reach me: email: jacobmziya@gmail.com or Slack 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love watching Baby Cartoons and nice movies.
+- ⚡ Fun fact: I love watching Baby Cartoons and movies. I can watch a movie as many times as possible.
 
